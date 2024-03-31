@@ -1,2 +1,7 @@
-# JAANxARI
-@miss_notookk ♡𝐉𝛂ꪉ𓆩ටිꫀ 乛𝚲𝛒𝛋ꪮ ✨ 𝚸𝛂ɧ𝛆𝗰᳟𝛈ⲗ །༨ɧꪊ∂ 𝚱❍ 𝆺꯭𝅥𝆭𝚩ɧυɭ 𝗴𝛄ᴀ🍃̶꯭̽͢#𝗺𝗶𝗻𝗲
+<h2 align="center">
+    ──「 JaanX * Music 」──
+</h2>
+
+<p align="center">
+  CLONE AND USE CODE!
+</p>
